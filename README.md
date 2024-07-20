@@ -1,2 +1,2 @@
 # SHILLINGI-YETU--DECENTRALIZED-KENYAN-SHILLING-
-Decentralized Kenyan shilling
+Decentralized Kenyan shilling to reduce poverty in Kenya
